@@ -14,6 +14,8 @@ November 21st, 2024. That was the date.
 
 ## What is the rapture?
 
+![Image](https://github.com/user-attachments/assets/ee2803eb-dd8b-431e-8b4b-9e8c609211aa)
+
 The Rapture is a spiritual event prophesied by Jesus in the Bible where God's people were taken away from this earth and catapulted to heaven via an ascension via God's angels.
 
 ## When did the rapture take place?
